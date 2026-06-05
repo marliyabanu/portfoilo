@@ -101,5 +101,8 @@ Feel free to connect with me through:
 * Project Detail Pages
 
 ---
+<img width="1536" height="864" alt="image" src="https://github.com/user-attachments/assets/52a50b50-0b78-47e0-b1a6-828eb04d9ad5" />
 
-Made with ❤️ by Ismail Sheik
+
+
+Made with ❤️ by B MARLIYA BANU
